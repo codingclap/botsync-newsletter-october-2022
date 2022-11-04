@@ -1,0 +1,1 @@
+# botsync-newsletter-october-2022
